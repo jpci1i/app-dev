@@ -28,6 +28,7 @@ It’s set in the 1980s and follows a group of kids who encounter supernatural e
 I love **Stranger Things** because of its mix of **nostalgic 80s style**, **suspenseful storytelling**, and **strong character bonds**.  
 Every season feels like a new adventure full of mystery and emotion.
 
+
 ---
 
 [Learn more about Stranger Things on Netflix](https://www.netflix.com/ph/title/80057281)
